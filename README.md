@@ -1,0 +1,1 @@
+# Tp7-inform-tica-2-2025-
